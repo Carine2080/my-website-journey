@@ -1,1 +1,1 @@
-My journey in web development with my husband shaffii
+My journey in web development
